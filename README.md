@@ -1,2 +1,2 @@
 # AIML
-i am SAI SREE LAKSHMI from KSRMCE dept of AIML
+I am SAI SREE LAKSHMI from KSRMCE dept of AIML
